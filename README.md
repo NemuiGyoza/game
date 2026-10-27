@@ -11,4 +11,6 @@ if you wanna make multiple more you gotta make multiple GitHub accounts, which y
 anyways have fun afking hornex XD
 
 my discord is `@Nemui_Gyoza`
-I may be changing this username tho;-;, so have fun finding me, I might update. maybe.
+I may be changing this username tho;-;, so have fun finding me, I might update this tho. maybe.
+
+if you low-key need help, either ask me or chatgpt or smth. it'll prob help more to ask chatgpt lol. ai can code better then me:)))))
